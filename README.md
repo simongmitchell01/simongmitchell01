@@ -1,1 +1,1 @@
-Hi, I'm Simon Mitchell. I'm a fourth year physics student at UCSB, graduating in June 2023.
+Welcome! I'm Simon Mitchell, a physics PhD student at the University of Pennsylvania.
